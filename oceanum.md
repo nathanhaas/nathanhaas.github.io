@@ -1,9 +1,9 @@
 
 
-##Oceanum
+## Oceanum
 
 
-###Chapter 1
+### Chapter 1
 “You think they accept middle school keychains as a valid photo ID?”
 
 Theo looked up with a smile on his face, only to see that Felix’ expression was stone cold. The smile vanished as Theo suddenly remembered who he was talking to. “I’m sorry, but you dragged us all the way here and couldn’t be bothered to prepare at least a little?”
@@ -93,7 +93,7 @@ Theo kept walking. It was even more aggravating that Felix could seemingly use t
 Felix nodded. Walking outside, Theo was eternally grateful to be back out in the open air again. The sights, sounds, and smells of the Reliquary district stood in stark contrast with each other. Where everything looked clean, as if the roads and walls were power washed daily, the district smelled of smoke and sounded of commotion. At least some other areas were more honest than others with how they looked. Looking south towards Pariah territory, he turned over the die in his pocket.
 
 
-###Chapter Two
+### Chapter Two
 He made eye contact with himself in the mirror. Same Theo as he always had been. The same wavy blonde hair, the same ears that stuck out just a little bit further than they should have. He stood the same way as he always had, upright and confident, with his hands tucked into the pockets of his bomber jacket. He smiled, picking out some food from between his teeth where it had always gotten stuck before. The bright red shirt he wore underneath the jacket was baggy, making up for the length of his torso being well above average for his height. Most definitely the same Theo Hargreaves. 
 
 He still doubted it. The real Theo Hargreaves wouldn’t even think of venturing into Pariah territory, let alone want to go because of some die he stole. And yet this Theo Hargreaves did. It had been a little less than a week since he and Felix had gone to the Reliquary together, and it seemed that they were dealing with the outcome in very different ways. Felix was exasperatingly ecstatic that he was accepted to work with the Reliquary. He hadn’t been assigned a position yet, but Theo couldn’t be around him without the topic coming up repeatedly. Felix was insufferable. It was just so rare for Theo to be turned down for really anything. Deep down he knew some of that had to do with his class, but he was nevertheless proud of what he had done and was never afraid to flaunt it. It’s called being confident, not egotistical. 
@@ -133,7 +133,7 @@ Theo didn’t know much about Pariah territory, but it didn’t take a genius to
 They might appreciate me leaving a note behind to tell them I’m leaving, he thought, his hand already on the doorknob. He chuckled to himself before opening the door and taking his first steps outside. There was payoff in waiting to say anything. In just a few days, he could surprise Joel with the news as his coworker at the Reliquary instead of just his son.
 
 
-###Chapter Three
+### Chapter Three
 There was no fine line, wall, or border between the CGT and Pariah Territory. Instead, the atmosphere shifted near instantly from developed to developing. The bright colors of the CGT quickly turned to browns, greys, and a heavy helping of rust. Only owning a bike and valuing it too much to risk losing it, Theo had decided to take one of the commerce trains there. Lines ran over most of the city with the primary task of importing and exporting goods. Oftentimes there would be open spots on the trains, and space would be opened up to civilians. Tickets were cheap as it was relatively infrequent for people to transfer away from their home unless they had a very good reason to do so. From what Theo had learned in class, the Pariah shipped out primarily food and products from mining. They had perfected the art of farming underground, creating layers upon layers of crops underneath the city.
 
 A siren blared, signaling that it was time for the passengers to get off. The train would only slow, not stop. Brakes squealed, Theo snatched his bag up off the ground, and ran to a large opening in the side of the traincar. He spotted a clearing coming up ahead at a railroad crossing and chose to jump there.
@@ -219,7 +219,7 @@ Theo thought back to when he might have used it before. It clicked. Applying at 
 He was only steps out the door before he heard the crunch of metal against his right knee. He keeled over in pain, lying on his side upon the street. Looking up, he saw two dark figures with the telltale markings of Retainers. Rusted metal suits with a small red lapel adorning the right shoulder. As he laid there on the ground and a metal boot approached his stomach, he had only one curious thought. He had never told the old man his last name was Hargreaves.
 
 
-###Chapter Four
+### Chapter Four
 Amber readjusted her stance next to Eve. Being practically born into the rebels had its perks, though menial tasks such as this were certainly not included. When Amber had first been assigned here, Eve had been smug about it. That smugness was noticed by officials which promptly landed her there as well. Supposedly, Eve was sent as ‘offensive support’, but that was purely to help her ego. There was nothing to ‘offend’ against here. They were tasked with watching over a local recruitment center through the next week’s end. The elderly man that worked there seemed a tad bit senile, but he apparently knew quite a bit about relics and seeing the potential of someone’s future. Likewise, Amber was sent due to her ability to gather information in a unique fashion.
 
 Those were long days standing next to Eve. Eve found ways to provoke her that would go unnoticed by Dr. Leopold. Though, it wasn’t so hard to do things behind his back with how engrossed he became in Solitaire as soon as the cards were laid out. She would send small sparks through her fingertips into Amber’s back. Amber knew her relic allowed her to take her frustration out without consequences, even if it would be a waste of Flow. This wouldn’t stop fantasizing about it.
